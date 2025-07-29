@@ -7,7 +7,7 @@
 
 - 📫 Você pode falar comigo através do email: **Eduardolemesbr@gmail.com**
 
-- 📄 Meu LinkedIn [https://surl.li/gnahbk](https://surl.li/gnahbk)
+- 📄 Meu LinkedIn [https://surl.li/gnahbk](Linkedin.com/in/EduardoLmss)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
